@@ -117,7 +117,7 @@ CONTACT US TODAY
 
 📧 Email: ___________________
 
-📍 Service Area: ___________________
+📍 Service Area: __________________
 
 Don't wait until your lawn is overgrown or your driveway is stained.
 
